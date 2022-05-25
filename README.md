@@ -10,4 +10,4 @@ The #COVID19 pandemia (a LUNGvirus) is killing many more people where air pollut
 
 Recent success with something at least a little similar: ["roken op het balkon of voor de deur? Het huurcontract wordt ontbonden"](https://www.volkskrant.nl/nieuws-achtergrond/roken-op-het-balkon-of-voor-de-deur-het-huurcontract-wordt-ontbonden~baa139fe)
 
-https://mobile.twitter.com/coraqua/status/1383779877921312772
+And ask for lower WOZ-tax because of less valuable living in neighbor smoke. [success story](https://mobile.twitter.com/coraqua/status/1383779877921312772)
