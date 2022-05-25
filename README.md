@@ -8,4 +8,6 @@ In case you think wood smoke is not such a serious matter, you should take a loo
 
 The #COVID19 pandemia (a LUNGvirus) is killing many more people where air pollution is high it seems, not surprisingly.
 
+Recent success with something at least a little similar: ["roken op het balkon of voor de deur? Het huurcontract wordt ontbonden"](https://www.volkskrant.nl/nieuws-achtergrond/roken-op-het-balkon-of-voor-de-deur-het-huurcontract-wordt-ontbonden~baa139fe)
+
 https://mobile.twitter.com/coraqua/status/1383779877921312772
