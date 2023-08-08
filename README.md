@@ -12,4 +12,6 @@ Recent success with something at least a little similar: ["roken op het balkon o
 
 And ask for lower WOZ-tax because of less valuable living in neighbor smoke. [success story](https://mobile.twitter.com/coraqua/status/1383779877921312772)
 
+For every vacation park or camping show if smoke is allowed on an easy to remember website?
+
 Also see https://github.com/steltenpower/SmellOutStinkers
