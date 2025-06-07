@@ -15,3 +15,5 @@ And ask for lower WOZ-tax because of less valuable living in neighbor smoke. [su
 For every vacation park or camping show if smoke is allowed on an easy to remember website?
 
 Also see https://github.com/steltenpower/SmellOutStinkers
+
+Also : 10 voor school; oproepen/nudgen om de 10 minuten voor school begint voor de autonomie van gezonde kinderen in te zetten en daarom auto's minder te faciliteren en natuurlijk ook de 10 minuten na sluiten school. Met communicatie, afsluitingen en positieve communicatie naar de wijk.
