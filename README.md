@@ -1,4 +1,4 @@
-# UnchokedNeighborhood (towards healthier neighborhoods, starting without the worst pollution)
+# Breathin' Hood (towards healthier neighborhoods, starting without the worst pollution)
 <img src="https://repository-images.githubusercontent.com/150909200/e9ef4180-789a-11eb-9698-6463fc84372b">
 How to enable (wood)smoke-free neighborhoods without starting new prohibition (there): basically not allow it from the start. So a group of future home owners, or a municipality, or a property developer set strong limits from the get-go and for all future people in that block/neighborhood/area.
 
