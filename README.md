@@ -147,3 +147,6 @@ Pinpoint locations and concentrations with 'mobile'device ? https://www.deingeni
 Turn it into a photo-realistic First-Person (Chimney)-Shooter ?
 
 Scapeler heeft iets met tijdelijk markeren rook/stank incident
+
+https://spectrum.ieee.org/hyperspectral-imaging
+
